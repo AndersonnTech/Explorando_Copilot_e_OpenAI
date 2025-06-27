@@ -1,0 +1,1 @@
+# Explorando_Copilot_e_OpenAI
